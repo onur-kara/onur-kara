@@ -1,6 +1,7 @@
 Hello! I'm Onur Kara, a defence and international relations expert based in Brighton, United Kingdom. With a PhD in War Studies from King's College London, my career spans roles in academia, defence analysis, and international relations, blending academic rigour with practical industry insight.
 
-I am currently a Senior Advisor at Six Analytic, a commercial solutions team attached to IISS. I'm also passionate about teaching and research, having served in military and civilian organisations.
+I am currently a Senior Advisor at Six Analytic, a commercial solutions team attached to IISS. Please note that this is my personal account.
+I'm also passionate about teaching and research, having served in military and civilian organisations.
 
 My expertise lies in data analysis, qualitative fieldwork and project management, with an increasing interest in business management. As a bilingual professional in English and Turkish, I bring a global perspective to my work.
 
